@@ -1,0 +1,11 @@
+ Cut the Onion & green chillies into small pieces. Then cut the carrot into cubes Also Cut the Beans and Capsicum into small pieces as shown in the picture below.
+We have to punch the maggi packet so as the maggi noodles are broken into small pieces because long pieces of maggi in the tandoori style will not be good, so crush the maggi packet by your hand as shown in the picture below.
+Then Take a sauce pan and add a little quantity of mustard oil as shown in pic and when this oil got heat or getting some fumes then add all the veggies that we have cut into small pieces like cutted onions, carrot, beans, peas, capsicums then roast this all material  for 3 min that we have added into it.
+Note:- if u are using frozen peas then not add immediately into the pan , you have to first cooled down its temperature by using normal water.
+Then add 1tsp Gram Flour or Chickpea Flour, it is more important to add besan to get the tandoori flavour and cooked it well for some min.
+ Now add spices like add 1tsp Dhaniya Powder (Coriander Powder) &  Cumin Powder, 1/2 turmeric Powder, 1/2tsp salt, 1/2 Red Chilli Powder & mix it properly.
+ Then add 3 cup of water , i am cooking 2maggi so i am adding this 3cup of water & wait for this of boiling it.
+ When water is getting or started boiling then add crushed maggi into it & when maggi gets soft as well as getting boil then add maggi masala into it and mix it well.
+After boiling this maggi , Place this Pan on the other gas stove and now place a 1 coal into the flame and the place a Natural clay pot on it , & Heat it Properly for 5-7 min.
+When this clay pot gets hot much then place it on the steel plate , here i am using copper plate, & then place the coal in the clay pot and cover it so it absorb completely tandoori flavour.
+ When all the flavor of coal gets incorporate in the clay pot completely then remove it and then started adding Maggie into this hot pot. First add some quantity of Maggi into this pot & then add liquid of maggi in this and serve this.
